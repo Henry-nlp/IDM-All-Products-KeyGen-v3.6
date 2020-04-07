@@ -1,3 +1,6 @@
+新添加：介绍详见https://blog.csdn.net/qq_41865545/article/details/80702377
+
+
 # IDM-All-Products-KeyGen-v3.6
 UltraEdit 注册机
 
